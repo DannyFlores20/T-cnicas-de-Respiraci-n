@@ -16,6 +16,7 @@ Una correcta respeiración puede ayudar a reducir los niveles de estres propovca
 
 # Como Practicarla.
 Tanto si queremos ayudar a reducir nuestro nivel de estrés, como si simplemente nos apetece relajarnos, podemos realizar una serie de ejercicios respiratorios en casa que nos ayuden a conseguirlo. Podemos elegir el que más nos conviene, o nos resulte más cómodo, o combinar en una sola tanda de  varias técnicas de respiración.
+
 Antes de empezar, nosotros debemos encontrar un lugar donde nos sintamos cómodos dentro de nuestro hogar. Para introducirnos  en un estado de calma, podemos poner ambiente como bajar las luces, poner música que nos relaje y ponernos en una buena posición.
 
 ![Posición](https://uecluster.blob.core.windows.net/images/1482405490_relaj2-jpg.jpg)
